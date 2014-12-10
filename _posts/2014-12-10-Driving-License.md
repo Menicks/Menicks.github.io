@@ -22,9 +22,15 @@ Read on...
 
 Seat belt done , car started what next ?...next is a U turn baby Woah!! I took a sexy U turn. Moving further was the end of the road and he said now u have take back from here to where we started. Oh god I don't know how to take a back or reverse whatever it is, I thought let's be smarter and as I will reach the end I will take a turn but sadly I was unable to do so. Now I was stuck. 
 What will I do now? ....Someone save me!!
-And then Andrew said **move out of the car boy**. A thought came to my mind that he will fail me and I CAN'T take this shit again, lets do it thinking ```jo hoga dekha jayega```  So I pressed the clutch put in reverse gear and then moved car backwards changed the gear and immediately took a turn and then back on track :D. Woah!!! Having a big smile on my face and then we returned to where we started ...though I am still amazed how was I able to take a reverse because I still cant :3.
+
+And then Andrew said **move out of the car boy**. A thought came to my mind that he will fail me, failing means giving all the tests again, filling those infinte no. of forms again and again and blah blah balh!!! surely I CAN'T take this shit again, lets do it thinking ```jo hoga dekha jayega```  So I pressed the clutch put in reverse gear and then moved car backwards changed the gear and immediately took a turn and then back on track :D. Woah!!! Having a big smile on my face and then we returned to where we started ...though I am still amazed how was I able to take a reverse because I still cant :3.
+
 Definitely Andrew was amazed.
+
 So my test finished and obviously I didn't fail.
+
 My dad who thought i will definitely fail because according to him i can't drive.
+
 P.S: More to come.
+
 P.P.S: Don't expect me to be perfect because there is no fun in being perfect! :P
