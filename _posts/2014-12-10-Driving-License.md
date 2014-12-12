@@ -4,10 +4,9 @@ title: Driving License
 date: 2014-12-10
 category: General
 ---
-So by the title i.e. "Driving Licence" you might be thinking that I will be writing about my license. Yes I will write about the day when I had tge driving license test.Lol it was a funny day for me.
-So here it is..
+So by the title i.e. "Driving Licence" you might be thinking that I will be writing about my license. Yes I will write about the day when I had the driving license test.Lol it was a funny day for me. So here it is..
 
-It was a normal day I slept at 1 am and was sleeping till 9 am until my dad came and wake me up saying its your holiday today , we can go for your driving license test. Well I didn't want to go but I had no excuses left.
+It was a normal day I slept at 1 am and was sleeping till 9 am until my dad came and woke me up saying its your holiday today , we can go for your driving license test. Well I didn't want to go but I had no excuses left.
 So we were go for the test, I passed the initial test earlier , that was a LOL test anybody who had knowledge of traffic rules could easily pass it.
 But that day I was going for driving test where I had to drive the car which I was not confident about. 
 
