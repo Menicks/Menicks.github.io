@@ -2,7 +2,7 @@
 layout: post
 title: Driving License
 date: 2014-12-10
-category: General
+category: drive,experience
 ---
 So by the title i.e. "Driving Licence" you might be thinking that I will be writing about my license. Yes I will write about the day when I had the driving license test.Lol it was a funny day for me. So here it is..
 

@@ -2,7 +2,7 @@
 layout: post
 title: The lunchbox
 date: 2014-12-22
-category: Movie
+category: Movie,thoughts
 ---
 This Saturday night I was just bored thinking what to do, then I decided to watch a movie ```The Lunchbox```.
  

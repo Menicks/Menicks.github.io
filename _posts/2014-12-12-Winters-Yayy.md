@@ -2,7 +2,7 @@
 layout: post
 title: Winters-Yayy
 date: 2014-12-12
-category: General
+category: love,experience
 ---
 December is here and finally ***Winters*** too are here. Yeah its time for *Winter* season. I love winters and wait for it to arrive
 
