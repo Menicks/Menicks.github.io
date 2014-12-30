@@ -3,10 +3,11 @@ title: NickArena
 email: nkmittal4994@gmail.com
 description: Welcome to Nick's Arena.
 baseurl: "" # the subpath of your site, e.g. /blog/
-url: "http://nikka.com" # the base hostname & protocol for your site
+url: http://nickedes.github.io/ # the base hostname & protocol for your site
 twitter_username: nickedes
 github_username:  nickedes
 
 # Build settings
 markdown: kramdown
 owner: Nikhil Mittal
+
