@@ -4,8 +4,15 @@ title: About
 permalink: /about/
 ---
 
-This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](http://jekyllrb.com/)
+Heyy!!
+Sup ?
+Anyways I am Nikhil Mittal. I am currently doing Btech from Jamia Millia Islamia. 
 
-You can find the source code for the Jekyll new theme at: [github.com/jglovier/jekyll-new](https://github.com/jglovier/jekyll-new)
+Well let's talk about my personality ;)
+I am a sensitive, understanding and supportive person.I mostly think of others before myself.I think I'm  friendly and approachable, if you know me you might agree.
 
-You can find the source code for Jekyll at [github.com/jekyll/jekyll](https://github.com/jekyll/jekyll)
+I love keeping some secrets ;) its good to have secrets :D.
+
+Coming to my hobbies I love music, I can't live without it, you can have a look at the artists I listen to at my Last.fm profile, [here](http://www.last.fm/user/nickedes).
+
+^Will be writing more. :)
